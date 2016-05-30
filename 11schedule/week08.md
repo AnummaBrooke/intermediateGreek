@@ -1,0 +1,1 @@
+Week 08: Galatians, 2 Corinthians 1-4.
